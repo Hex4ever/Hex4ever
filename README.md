@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Hex4ever
-- 👀 I’m interested in cryptocurrencies,blockchain technology, NFTs, DeFi and Games.
+- 👀 I’m interested in Product Mangement,UX & UI Designs,cryptocurrencies,blockchain technology, NFTs, DeFi and Games.
 - 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate on projects in blockchain
 - 📫 How to reach me - max2draciel@gmail.com/https://www.linkedin.com/in/praveen-kumar-358b841a2/
